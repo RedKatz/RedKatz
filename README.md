@@ -1,4 +1,1 @@
--Hallo im redkatz
--i like making art, music, games, and occasionally website stuff
--he/him/any pronouns
--thanks for looking
+hey bitch im redkatz!!!! i like making games, art and music shit and i use he/him/any pronouns... swag
